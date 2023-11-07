@@ -1,4 +1,8 @@
-# Closing-Costs
+# Closing
+# Guide:
+https://www.rocketmortgage.com/learn/closing-on-a-house
+
+# Costs:
 https://www.google.com/search?q=real+estate+closing+costs
 
 Guide:
